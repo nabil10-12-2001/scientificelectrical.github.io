@@ -1,1 +1,0 @@
-# scientificelectrical.github.io
